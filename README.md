@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DionisIno.github.io/rsschool-cv/cv
